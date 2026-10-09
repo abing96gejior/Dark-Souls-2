@@ -212,4 +212,4 @@ Dark Souls II is offered as a complete free version, with all features unlocked 
 Don't miss out on the chance to explore the dark and immersive world of Dark Souls II. Download it today and face your fears!
 
 ---
-**Last updated:** 2026-10-08 20:23:52 UTC
+**Last updated:** 2026-10-09 00:52:25 UTC
